@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheresaSon
-- 👀 I’m interested in SEO/SEA/netlinking
-- 🌱 I’m currently learning how to be an expert in digital marketing strategy
+- 👀 I’m interested in Fintech
+- 🌱 I’m currently learning how to be a consultant in Digital Transformation in Banking and Payments
 - 💞️ I’m looking to collaborate on the creation of my future app/website
 - 📫 How to reach me thson.contact - at - gmail.com
 
